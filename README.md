@@ -7,7 +7,3 @@ I have a strong background in SQL, Python, and Artificial Intelligence and I'm a
 As I continue to grow my career in data science, I'm eager to tackle new challenges and explore new frontiers in this ever-evolving field. Let's connect and see where our shared passion for data takes us!
 
 Email: Sunitaarawat029@gmail.com
-
-Medium: https://medium.com/@sunita_rawat
-
-
